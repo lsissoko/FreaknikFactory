@@ -7,4 +7,4 @@ You star as the **Ghost of Freaknik**, from **T-Pain** and **Adult Swim’s** [*
 #### [Click Here to Play](http://laminesissoko.com/freaknik/)
 
 
-![](https://dl.dropboxusercontent.com/u/11066635/Hosting/freaknikscreen3.png)
+![](https://dl.dropboxusercontent.com/u/11066635/Hosting/games/freaknik_factory/freaknikscreen3.png)
